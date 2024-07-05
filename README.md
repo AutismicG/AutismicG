@@ -1,0 +1,6 @@
+- heyo I'm an idiot
+- I'm learning to code in lua (wish it was python)
+- I just kinda like Minecraft ngl
+- ya got ma discord (AutismicDumbo)
+- I be an she/they
+- I Am Autism.
