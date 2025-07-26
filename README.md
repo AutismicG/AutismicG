@@ -1,4 +1,5 @@
 - heyo I'm an idiot
-- ya got ma discord (AutismicDumbo)
-- I be an she/they
+- ya got ma discord (autigoobie)
+- I be an she/her
 - I Am Autism.
+- I love NTM
